@@ -1,1 +1,1 @@
-# belaroid.github.io
+# Polaroid in Belarus
